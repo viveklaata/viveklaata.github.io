@@ -1,3 +1,3 @@
-# upendrasinghktp.github.io
+# viveklaata.github.io
 
 Personal Resume
